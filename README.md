@@ -1,2 +1,0 @@
-# wassim.sabra
-Personal Page
